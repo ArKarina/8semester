@@ -1,1 +1,1 @@
-# 8semester
+# 8 semester at bmstu
